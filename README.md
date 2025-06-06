@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning C++
 - 💞️ I’m looking to collaborate on (i am an absolute beginner, so nothing atm)
 - 📫 How to reach me (email:yuwuraj@gmail.com 
-                      instagram- chunin.artish)
+                      instagram- chunin.artist)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: 
 
